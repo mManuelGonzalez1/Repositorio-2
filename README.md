@@ -1,2 +1,2 @@
 # Repositorio-2
-Repositorio de prueba 
+Recuerda que maria jose no vale la pena bobo hpta 
